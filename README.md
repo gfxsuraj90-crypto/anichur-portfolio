@@ -1,4 +1,4 @@
-# anichur-portfolio
+# Anichur-Portfolio
 Graphic Designer Portfolio Website - Anichur
 <p>
 Hello! I'm Anichur, a passionate graphic designer who loves creating
