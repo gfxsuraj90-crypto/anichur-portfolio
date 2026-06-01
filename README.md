@@ -119,20 +119,20 @@ sk3130187@gmail.com
 
 📱 WhatsApp:
 <a href="https://wa.me/919134159070">
-+91 9134159070
+WhatsApp
 </a>
 
 <br>
 
 📸 Instagram:
-<a href="https://instagram.com/anichur11">
-@anichur11
+<a href="https://instagram.com/anichur_11">
+Anichur_11
 </a>
 
 <br>
 
 📘 Facebook:
-<a href="#">
+<a href="https://www.facebook.com/share/1BtbLPxCKt/">
 Anipix Lab
 </a>
 
